@@ -1,0 +1,1 @@
+Type out some notes
